@@ -38,14 +38,13 @@
 
 ## 🌐 魔法上网工具
 
-**耐思云**:
-https://a04.nyc03.cc/register?code=6iPK3l3y
+**一元机场**:
+https://xn--4gq62f.com/#/register?code=hhDnF7Ec
 
 
 ## ☁️ 免备案云主机推荐
 
 - **云主机**: https://www.ikun.run/aff/FQYOYHZM
-- **国外虚拟卡**（可用于 ChatGPT 订阅）: https://bewildcard.com/i/MAYNORAI
 
 ---
 
