@@ -45,6 +45,9 @@ https://mojie.app/register?aff=vxWju1wm
 
 大哥云
 https://www.dageyun.net/#/register?code=5oNksakW
+
+青云梯
+https://ivt03.qytaff.cc/register?aff=hxOvXni0
 ## ☁️ 免备案云主机推荐
 
 - **云主机**: https://www.ikun.run/aff/FQYOYHZM
