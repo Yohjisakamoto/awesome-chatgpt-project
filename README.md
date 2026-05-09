@@ -43,7 +43,8 @@ https://xn--4gq62f.com/#/register?code=hhDnF7Ec
 **魔戒机场**:
 https://mojie.app/register?aff=vxWju1wm
 
-
+大哥云
+https://www.dageyun.net/#/register?code=5oNksakW
 ## ☁️ 免备案云主机推荐
 
 - **云主机**: https://www.ikun.run/aff/FQYOYHZM
